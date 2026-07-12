@@ -8,3 +8,5 @@
 . 🗒️|✨ × sign atabook ! ~ int heavy enc ! <3 ; i might be off tab or really akward sometimes tho ૮ . . ྀིა⁩ 
 <img width="736" height="414" alt="1000099375" src="https://github.com/user-attachments/assets/f1b69fdf-74da-4820-8509-5b67d17d0c6d" />
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
+<img width="498" height="498" alt="1000104327" src="https://github.com/user-attachments/assets/b0d87f2e-f99e-45fb-809a-390e58c72982" />
+
