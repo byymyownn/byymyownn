@@ -1,5 +1,7 @@
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
-<img width="736" height="424" alt="1000099374" src="https://github.com/user-attachments/assets/d9e44201-069c-4303-aa5c-0d8ece6f4875" />
+<img width="498" height="307" alt="1000104329" src="https://github.com/user-attachments/assets/e9209122-6631-4141-b80e-21419eab6337" />
+
+
 
 ⌒ 𓈒 xᴀɴᴀx's 𝘣𝘪𝘰 ! ¡ ꒱ 𝅄 ୭ৎ ࣪ 16yo ! she × they ; 🇮🇹//🇬🇧 ㅤㅤㅤㅤㅤㅤ ︶⏝︶⊹︶⏝︶
 「 « hᥱr ᥱყᥱs, oᥒᥴᥱ so mᥲgᥒᥱtιᥴ ᥒow jυst ᥱmρtყ. » 」 . 
