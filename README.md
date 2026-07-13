@@ -1,9 +1,11 @@
    ּ ֗ ִ    ۪ ⊹︶︶   ♡  ︶︶  ۫   ּ ֗ ִ    ۪ ⊹ 
    
-<img width="600" height="338" alt="1000104375" src="https://github.com/user-attachments/assets/6c32e1a1-2ed0-4b30-8055-5bb3d97e4144" />
+<img width="500" height="280" alt="1000104376" src="https://github.com/user-attachments/assets/530b3012-8a8b-450d-9a7c-1d5085b2ecd9" />
+
 
  ८    ( xanax / own )  !!   ꔫა 
-   ★ ,, 16yo ! she × they  ; 🇮🇹//🇺🇸
+ ★ ,, 16yo ! she × they  ; 🇮🇹//🇺🇸
+ 
 — “ feelings i cant understand. ”
 
 <img width="736" height="736" alt="1000104386" src="https://github.com/user-attachments/assets/12a4b039-f63f-4cd7-9eee-e573140f9e99" />
