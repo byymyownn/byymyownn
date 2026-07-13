@@ -6,10 +6,15 @@
  ८    ( xanax / own )  !!   ꔫა 
  ★ ,, 16yo ! she × they  ; 🇮🇹//🇺🇸
  
-— “ feelings i cant understand. ”
+— “ きっかけは自分だったのです　傷を付けてしまったのです. ”
 
 <img width="736" height="736" alt="1000104386" src="https://github.com/user-attachments/assets/12a4b039-f63f-4cd7-9eee-e573140f9e99" />
 
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31rwlk2nh6ypt5ruc6zaxicis5yi&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31rwlk2nh6ypt5ruc6zaxicis5yi&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=795480">
+  </a>
+</p> 
 
 🗒️ || ✨ × sign atabook ! ~ int heavy enc ! <3 ; i might be off tab or really akward sometimes tho (..◜ᴗ◝..)
 
