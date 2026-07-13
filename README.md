@@ -3,7 +3,7 @@
 <img width="500" height="280" alt="1000104376" src="https://github.com/user-attachments/assets/530b3012-8a8b-450d-9a7c-1d5085b2ecd9" />
 
 
- ८    ( xanax / own )  !!   ꔫა 
+ ८ 💤 ( xanax / own )  !! 𓆩ᥫ᭡𓆪
  ★ ,, 16yo ! she × they  ; 🇮🇹//🇺🇸
  
 — “ きっかけは自分だったのです　傷を付けてしまったのです. ”
