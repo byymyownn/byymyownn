@@ -1,19 +1,16 @@
-⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
+   ּ ֗ ִ    ۪ ⊹︶︶   ♡  ︶︶  ۫   ּ ֗ ִ    ۪ ⊹ 
+   
+<img width="600" height="338" alt="1000104375" src="https://github.com/user-attachments/assets/6c32e1a1-2ed0-4b30-8055-5bb3d97e4144" />
 
-<img width="498" height="307" alt="1000104329" src="https://github.com/user-attachments/assets/e9209122-6631-4141-b80e-21419eab6337" />
+ ८    ( xanax / own )  !!   ꔫა 
+   ★ ,, 16yo ! she × they  ; 🇮🇹//🇺🇸
+— “ feelings i cant understand. ”
 
-
-
-⌒ 𓈒 xᴀɴᴀx's 𝘣𝘪𝘰 ! ¡ ꒱ 𝅄 ୭ৎ ࣪ 16yo ! she × they ; 🇮🇹//🇬🇧 ㅤㅤㅤㅤㅤㅤ ︶⏝︶⊹︶⏝︶
-「 « hᥱr ᥱყᥱs, oᥒᥴᥱ so mᥲgᥒᥱtιᥴ ᥒow jυst ᥱmρtყ. » 」 . 
-
-wdyd when my gang pulls out
-<img width="1280" height="1280" alt="1000104339" src="https://github.com/user-attachments/assets/1406b74c-b2ab-49c4-ab2b-465fbd2e0bc4" />
+<img width="736" height="736" alt="1000104386" src="https://github.com/user-attachments/assets/12a4b039-f63f-4cd7-9eee-e573140f9e99" />
 
 
-. 🗒️|✨ × sign atabook ! ~ int heavy enc ! <3 ; i might be off tab or really akward sometimes tho ૮ . . ྀིა⁩ 
-<img width="736" height="414" alt="1000099375" src="https://github.com/user-attachments/assets/f1b69fdf-74da-4820-8509-5b67d17d0c6d" />
-⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
+🗒️ || ✨ × sign atabook ! ~ int heavy enc ! <3 ; i might be off tab or really akward sometimes tho (..◜ᴗ◝..)
 
-<img width="498" height="498" alt="1000104327" src="https://github.com/user-attachments/assets/b0d87f2e-f99e-45fb-809a-390e58c72982" />
-
+   ּ ֗ ִ    ۪ ⊹︶︶   ♡  ︶︶  ۫   ּ ֗ ִ    ۪ ⊹ 
+   
+   <img width="498" height="498" alt="1000104327" src="https://github.com/user-attachments/assets/f199adcf-a2a0-4d30-86a8-b9601bf4b969" />
