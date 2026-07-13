@@ -23,5 +23,3 @@
    <img width="498" height="498" alt="1000104327" src="https://github.com/user-attachments/assets/f199adcf-a2a0-4d30-86a8-b9601bf4b969" />
 
 
-wdyd when me and my gang pull out
-<img width="1280" height="1280" alt="1000104339" src="https://github.com/user-attachments/assets/6574b549-4da1-44ee-b679-310da971b119" />
