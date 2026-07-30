@@ -17,7 +17,7 @@
 </p>
 
 🗒️ || ✨ × sign atabook ! ~ int heavy enc ! <3 ; i might be off tab or really akward sometimes tho (..◜ᴗ◝..)
-- !! not a p*rfies shipper !!
+- !! not a boundary breaker !!
 
    ּ ֗ ִ    ۪ ⊹︶︶   ♡  ︶︶  ۫   ּ ֗ ִ    ۪ ⊹ 
    
