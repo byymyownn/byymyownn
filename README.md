@@ -18,7 +18,7 @@
 
 🗒️ || ✨ × sign atabook ! ~ int heavy enc ! <3 ; i might be off tab or really akward sometimes tho (..◜ᴗ◝..)
 
-          *#lostcause*
+      « ur a lost cause . . . »
           
 - !! not a boundary breaker !!
 
