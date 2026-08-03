@@ -19,6 +19,7 @@
 🗒️ || ✨ × sign atabook ! ~ int heavy enc ! <3 ; i might be off tab or really akward sometimes tho (..◜ᴗ◝..)
 
      « ʏᴏᴜ'ʀᴇ ᴀ ʟᴏꜱᴛ ᴄᴀᴜꜱᴇ. . . »
+     
           
 - !! not a boundary breaker !!
 
