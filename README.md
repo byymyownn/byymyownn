@@ -6,4 +6,4 @@
 <p align=center>
 <a href=https://voyageduo.straw.page/>ꜱᴛʀᴀᴡᴘᴀɢᴇ</a> <img src="https://file.garden/apUsT7AyQFFeQMyv/Senza%20titolo%20237_20260831110356.png" alt="mace" width=50 height=40> <a href=https://rott1ngxanax.atabook.org/>ᴀᴛᴀʙᴏᴏᴋ</a>
 </p>
-<p align=center> <img src="https://file.garden/apUsT7AyQFFeQMyv/3e520a180dd323635166bae8549a609d%20(1).jpg" alt="widgetwemmbu" width="350"/>
+<p align=center> <img src="https://file.garden/apUsT7AyQFFeQMyv/364ec9f068f31a225235b117d44d62e9.jp" alt="widgetwemmbu" width="350"/>
