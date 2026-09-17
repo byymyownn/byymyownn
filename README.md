@@ -4,7 +4,7 @@
 <p align=center> ${\textsf{\color{#9665C9} ८    ( xᴀɴᴀx / ᴏᴡɴ )  !! ★ }}$ </p>
 <p align=center> ${\textsf{\color{#6B5BB0} — “ 𝒇𝒆𝒆𝒍𝒊𝒏𝒈𝒔 𝒊 𝒄𝒂𝒏'𝒕 𝒖𝒏𝒅𝒆𝒓𝒔𝒕𝒂𝒏𝒅. ” }}$ </p>
 <p align=center>
-<a href=https://voyageduo.straw.page/>ꜱᴛʀᴀᴡᴘᴀɢᴇ</a> <img src="https://file.garden/apUsT7AyQFFeQMyv/Senza%20titolo%20237_20260831110356.png" alt="mace" width=50 height=40> <a href=https://rott1ngxanax.atabook.org/>ᴀᴛᴀʙᴏᴏᴋ</a>
-</p>
+   <a href=https://rott1ngxanax.atabook.org/>ᴀᴛᴀʙᴏᴏᴋ</a> <p align=center>
+ <p align=center> <img src="https://file.garden/apUsT7AyQFFeQMyv/Senza%20titolo%20237_20260831110356.png" alt="mace" width=50 height=40>
 
 <p align=center> <img src="https://file.garden/apUsT7AyQFFeQMyv/b8b0c7222ab806e78fc80912cc182608.jpg" alt="widgetwemmbu" width="350"/>
